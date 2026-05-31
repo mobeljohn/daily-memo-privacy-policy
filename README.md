@@ -28,4 +28,5 @@ Daily Memo does not knowingly collect information from children.
 
 If you have questions regarding this Privacy Policy, contact:
 
-youremail@gmail.com
+jason2025.com@gmail.com
+
